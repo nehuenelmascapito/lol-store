@@ -1,2 +1,3 @@
 # lol-store
-nose cosas para lol
+pereyra te amo porfavor aprobame
+
